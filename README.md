@@ -1,0 +1,3 @@
+Download Link: https://assignmentchef.com/product/solved-solved-decision-making-and-analysis
+<br>
+Write a 1,400- to 2,100-word analysis on a recent decision you made at work. Answer the following questions: How did you go about making the decision? Apply the steps of the decision-making process. Critique your decision approach. What were the strengths and weaknesses? Did you involve supervisors, coworkers, or employees? If so, how and in what capacity? If not, why did you not involve them? Have you experienced cognitive dissonance since you made the decision? If so, how did the dissonance affect you? If you resolved the dissonance, how did you do so?
